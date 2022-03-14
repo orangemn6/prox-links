@@ -10,4 +10,4 @@ for geogebra if you know what I mean
 
 [https://br.totallyschool.gq] 
 
-[pleasedontblock.me]
+(degenerate)[https://pleasedontblock.me]
